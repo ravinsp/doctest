@@ -1,2 +1,0 @@
-# Tutorial page
-sdfsdfsdfdsfdsf
